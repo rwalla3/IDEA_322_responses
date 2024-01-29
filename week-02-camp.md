@@ -10,7 +10,7 @@
   Reminds me of the big chair in Door County.
 
 18. "One must distinguish between naive and deliberate Camp. Pure Camp is always naive. Camp which knows itself to be Camp ('camping') is usually less satisfying."  
-  Cocaine Bear!
+  Cocaine Bear
 
 23. "In naive, or pure, Camp, the essential element is seriousness, a seriousness that fails. Of course, not all seriousness that fails can be redeemed as Camp. Only that which has the proper mixture of the exaggerated, the fantastic, the passionate, and the naive."
 &
