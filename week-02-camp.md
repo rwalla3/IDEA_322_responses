@@ -25,7 +25,7 @@
 ### 18.  
 "One must distinguish between naive and deliberate Camp. Pure Camp is always naive. **Camp which knows itself to be Camp ('camping') is usually less satisfying.**"  
   
-  ![wallace-18](https://github.com/rwalla3/IDEA_322_responses/assets/157409525/2dd5b4ca-218a-413a-bcfa-34787f52de4f)
+  ![wallace-18](https://github.com/rwalla3/IDEA_322_responses/assets/157409525/2dd5b4ca-218a-413a-bcfa-34787f52de4f)  
   
   *Cocaine Bear (2023)*
 
@@ -34,12 +34,12 @@
   
 <img width="557" alt="wallace-56" src="https://github.com/rwalla3/IDEA_322_responses/assets/157409525/8cc1e8ca-4f15-4576-acf1-fc0e480a208a">  
 
-  *Karlie Kloss MET Gala memes*
+  *Karlie Kloss MET Gala memes (2019)*
 
 ### 23.  
 "In naive, or pure, Camp, **the essential element is seriousness, a seriousness that fails.** Of course, not all seriousness that fails can be redeemed as Camp. Only that which has the proper mixture of the exaggerated, the fantastic, the passionate, and the naive."  
   
 <img width="557" alt="wallace-23" src="https://github.com/rwalla3/IDEA_322_responses/assets/157409525/7502f9f4-82a6-481a-bf1f-86aa8c754401">  
 
-  *Karlie Kloss MET Gala fail*  
+  *Karlie Kloss MET Gala fail (2019)*  
    
