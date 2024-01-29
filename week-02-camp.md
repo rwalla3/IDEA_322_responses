@@ -1,5 +1,5 @@
 ### January 29, 2024
-## *Notes on "Camp"* - Susan Sontag response
+## Response: *Notes on "Camp"* - Susan Sontag
 
 <!--Possible numbers to respond to?
 
