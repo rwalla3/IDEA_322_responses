@@ -31,6 +31,8 @@
 "56. Camp taste is a kind of love, love for human nature. It relishes, rather than judges, the little triumphs and awkward intensities of 'character.'...Camp taste identifies with what it is enjoying. **People who share this sensibility are not laughing at the thing they label as 'a camp,' they're enjoying it. Camp is a *tender* feeling.**"  
   Karlie Kloss MET Gala memes
 
-  ![Karlie Kloss MET Gala meme](https://twitter.com/notgwendalupe/status/1652838592971177984?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1652838592971177984%7Ctwgr%5E539251eb588df14754e20c0945d1e77515673585%7Ctwcon%5Es1_&ref_url=https%3A%2F%2Fwww.news18.com%2Fviral%2Fmet-gala-2023-karlie-kloss-ironic-camp-look-is-still-getting-dragged-4-years-later-7689991.html)
+  ![Karlie Kloss MET Gala meme](<img width="557" alt="wallace-56" src="https://github.com/rwalla3/IDEA_322_responses/assets/157409525/bd6963ea-b267-44aa-9e67-a083f3429014">)
+  
+
   
 
