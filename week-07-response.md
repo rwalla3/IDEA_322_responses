@@ -1,0 +1,13 @@
+<!--Consider the variety of projects described in the text. Which of these projects did you find the most engaging, and why?-->
+
+### April 12, 2024
+# Speculative Design: The Newton Machine
+
+I found the “Newton Machine” project really compelling. I appreciate that it is a conceptual project and takes its form according to the circumstances of those creating it. I also think it brings to awareness important concerns about energy and resources, like how we might lose sight of the resources at our disposal and the importance of developing a relationship with our energy sources. I also like the idea of depending on local design rather than universal practices because i think univeralizing anything can be taken to an extreme and become authoritarian and overbearing. There are seeminly infinite ways that a Newton Machine can exist and it inspires the imagination more than anything, which I think is really good for individuals and communities especially when facing a climate crisis for example.  
+
+
+<!--The Newton Machine is a design manual and prototype for an energy storage device, made with a local community using their tools, spare parts, and expertise. It takes us from the power socket, “through the wall” to the energy infrastructure behind. The original idea or motivation behind generating a set of working gravity battery prototypes was to give a physical form to the concepts of Reconstrained Design that we had been writing about and sketching for several months. In a broader sense, we aimed to get speculative design out of the gallery and into “real life”, to produce tangible societal outcomes and turn (positive) aspects of fiction into fact – to close the loop, in other words, from fiction back to reality.
+Method/Tool/Approach: A Newton Machine is designed to the followingspecifications: ☞Renewalofexistingresources. ☞ Innovation redefined as “artful integration”. ☞ Design solu- tions that are local and not universal. ☞ Designed things made of people and places. ☞ Energy as a visible companion. ☞ Energy infrastructure as domestic. ☞ Self-determined ener- gy machine. ☞ Freedom from electricity grid constraints. ☞ Community-making machine. ☞ Energy storytelling machine.
+Quote / Author’s view: We design for living outside and on the edge of the electricity grid network. Through energy storage, our design increases autonomy and freedom from energy markets, limited capacity, and other grid constraints. A Newton Machine can exist as a story, on a scrap of paper, in a plan for designing to this specification. Whether oral or written, imaginary or ma- terial, a Newton Machine can still work to draw people, places, and things together, and reconfigure their energy.-->
+
+
